@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Jan Rodriguez
 - 👀 I’m interested in programing
 - 🌱 I’m currently learning computer science
-- 💞️ I’m looking to collaborate with girls
+- 💞️ I’m looking to collaborate crackheadsn
 - 📫 How to reach me? on my onlyfans
 
 <!---
