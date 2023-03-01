@@ -1,8 +1,7 @@
 - 👋 Hi, I’m @Jan Rodriguez
 - 👀 I’m interested in programing
 - 🌱 I’m currently learning computer science
-- 💞️ I’m looking to collaborate crackheadsn
-- 📫 How to reach me? on my onlyfans
+- 📫 How to reach me? My Gmail
 
 <!---
 TownL/TownL is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
